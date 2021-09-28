@@ -1,7 +1,7 @@
 # تحديثات سكربت الكويزات 
 <hr>
 
->## للمزيد من التفاصيل يرجي التواصل معانا عبر [فيسبوك](https://facebook.com/OfficialEgyWeb) & [الواتس اب](https://wa.me/201141173045) & [الموقع الالكتروني](https://egyweb.info)
+>###### للمزيد من التفاصيل يرجي التواصل معانا عبر [فيسبوك](https://facebook.com/OfficialEgyWeb) & [الواتس اب](https://wa.me/201141173045) & [الموقع الالكتروني](https://egyweb.info)
 >
 <hr>
 
